@@ -1,0 +1,10 @@
+- 👋 Hi, I’m @max666999
+- 👀 I’m interested in programing and hacking
+- 🌱 I’m currently learning simple hacking
+- 💞️ I’m looking to collaborate on anything really
+- 📫 How to reach me
+- dm me on twitter @maxjblack2341
+- dm me on instagram @iinnxxz
+- you can text me at 727-292-0366
+- you can email me at yodude2341@gmail.com just name the email as README.TXT
+- ping me in my discord server https://discord.gg/VrCZ5KsQw6 .my acc name is iinnxxz#1147
